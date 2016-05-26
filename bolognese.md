@@ -17,6 +17,7 @@ Ingredients
 - 3 tsp tomato puree
 - 300g pasta (dry weight; I use penne)
 - Cheese (cheddar or parmesan) (optional)
+- Salt & pepper (about 2 or 3 grinds of each)
 
 Irritatingly, it's hard to find 100g of bacon or 200g of mince, so I normally make double and freeze the leftovers.
 
@@ -35,7 +36,7 @@ Dice the onion, celery and carrot.
 Fry the bacon in your fat of choice on a high heat.
 Add onion; cook until softened and then add the carrot and celery.
 Cook for a few minutes until that's started to soften too.
-Add the mince, make sure it's broken up and not in lumps. Cook until all the water's cooked off and the meat has turned brown.
+Add the mince, make sure it's broken up and not in lumps. Add salt and pepper. Cook until all the water's cooked off and the meat has turned brown.
 
 Preheat oven to 125 degrees.
 Add the milk. Turn down the heat and simmer gently until almost dry again (about 20 minutes).
