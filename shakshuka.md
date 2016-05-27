@@ -1,6 +1,6 @@
 Shakshuka
 ========
-Contains eggs, chillies.
+Contains eggs, chillies, gluten.
 For 3 (though for 2, the recipe is basically the same but with fewer eggs & pittas.)
 
 Ingredients
