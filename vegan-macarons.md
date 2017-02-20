@@ -1,15 +1,15 @@
 Vegan Raspberry Macarons (Italian method)
 ========
-Contains chickpeas.
-Involves hot sugar syrup. Hot syrup is VERY hot and VERY sticky and VERY dangerous.
-Makes 15
+Contains chickpeas. Involves hot sugar syrup. Hot syrup is VERY hot and VERY sticky and VERY dangerous.
+
+Makes about 18
 
 Ingredients
 ------------
 - 100g ground almonds
 - 90g icing sugar (powdered sugar)
 - 10g freeze-dried or powdered raspberries
-- 70g chickpea water, rendered - roughly the amount from 2 tins of chickpeas
+- 70g chickpea water, rendered - roughly the amount from 1 tin of chickpeas
 - 70g sugar
 - 20g water
 - Pink gel or powder food colouring (not oil-based!)
@@ -32,7 +32,7 @@ Equipment
 Instructions
 ------------
 
-If you've got chickpea water directly from the can, you'll need to render it down first. Simmer in a pan, stirring occaisionally, until it's roughly halved in volume. It should be roughly the consistency of old egg whites - runny, but still able to coat the back of a spoon. Leave it to cool - it will thicken up even more, to roughly the consistency of fresh whites or yolks. Measure out 70g of this thicker water.
+If you've got chickpea water directly from the can, you'll need to render it down first. Simmer in a pan, stirring frequently, until it's roughly halved in volume. You'll know when you've got to the right amount because it'll start to 'clump up' into sort of strange flakes a bit like kettle fur. Leave it to cool - it will thicken up, to roughly the consistency of fresh egg whites. Measure out 70g of this thicker water.
 
 Sieve together the ground almonds and icing sugar. Try to get out all the actual lumps - there will be some grounds left in the sieve no matter how hard you try, because of how almonds work; just chuck them in too. Add the freeze-dried raspberries, food colouring, and exactly half of your chickpea water. Mix it together until it forms a (probably very stiff) paste.
 
@@ -44,7 +44,9 @@ Turn the mixer back up to high and whisk until it's glossy, white and considerab
 )
 Stir together until the mixture is all the same consistency, like a thick grainy batter. Then, macaronnage - squash/smear the mixture against the side of the bowl, scoop it up, turn the bowl around, and repeat 15-20 times. (You're trying to get most of air out of the mixture so that the macarons will be chewy, not crispy like meringue.)
 
-Fill a piping bag with the mixture. Put the paper on a baking tray and pipe dollops about the size of a pound coin. Pipe from the top to keep them round, then pat down any 'tufts' with a wettened finger. Leave to set for about an hour - the surface should be tacky, but not sticky.
+Fill a piping bag with the mixture. Put the paper on a baking tray and pipe dollops about the size of a pound coin. Pipe from the top to keep them round, then pat down any 'tufts' with a wettened finger.
+
+Leave to set for about an hour - the surface should be tacky, but not sticky. My oven has an 'eco air' setting that I use for this - 10-20 minutes at 30C is enough to set them.
 
 Pre-heat the oven to 140C. Bake the macarons for 20 minutes - you might need to turn them around halfway through if your oven has hot and cold spots. Remove from the oven, take the paper off the tray and leave to cool.
 
