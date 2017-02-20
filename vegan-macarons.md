@@ -40,8 +40,8 @@ Put the other half of the chickpea water in the spectacularly clean mixing bowl,
 
 While it's whisking, make a sugar syrup. Put the sugar and water in a pan, gently boil without stirring until the sugar thermometer reads 245F or 120C - the soft ball stage. Turn your mixer to low speed (to avoid splashing) and pour in the syrup. A bunch will stick to the sides and the whisk, that's ok.
 
-Turn the mixer back up to high and whisk until it's glossy, white and considerably thicker - it should fill up the balloon of the whisk and not drip out. Scoop it out into the almond paste mixture.
-)
+Turn the mixer back up to high and whisk until it's glossy, white and considerably thicker - it should fill up the balloon of the whisk and not drip out. Keep whisking until it's cooled down (touch the outside of the bowl to check, do not stick your fingers in). Scoop it out into the almond paste mixture.
+
 Stir together until the mixture is all the same consistency, like a thick grainy batter. Then, macaronnage - squash/smear the mixture against the side of the bowl, scoop it up, turn the bowl around, and repeat 15-20 times. (You're trying to get most of air out of the mixture so that the macarons will be chewy, not crispy like meringue.)
 
 Fill a piping bag with the mixture. Put the paper on a baking tray and pipe dollops about the size of a pound coin. Pipe from the top to keep them round, then pat down any 'tufts' with a wettened finger.
